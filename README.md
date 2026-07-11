@@ -4,5 +4,4 @@
   <div align="center"> r᥆mі ノ m᥆rі ノ zᥱᥒ (+m᥆rᥱ!) </div> 
   <div align="center"> 16 ᥡ᥆. ︵  10/4/10.</div> 
   <div align="center"> 𝗍ᥲkᥱᥒ . Ი⑅𐑼 </div> 
-  <div align="center"> ᥒ᥆ᥒ-sһᥲrіᥒg ᥡᥙmᥱ. </div> 
-  [s𝗍rᥲᥕ](https://spdierlilys.straw.page/) 
+  <div align="center"> ᥒ᥆ᥒ-sһᥲrіᥒg ᥡᥙmᥱ. </ძі᥎>
