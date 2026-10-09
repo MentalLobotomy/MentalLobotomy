@@ -1,3 +1,8 @@
-![](https://cdn.discordapp.com/attachments/1517899250363793551/1546671170215215124/7e330ab2ab7e2cf1b26db581548b62cb.jpg?ex=6aa0a146&is=6a9f4fc6&hm=ca55bd52b10eec636d516252514ebb3a591bb179eb3e0c0357873836c6e77089&) 
-<div align="center"> hallo everyone  ! ! ! </div>
-<div align="center"> im romi and im obsessed with the country k*s*va. pls draw on straw & sign my ata. Thank you 🇽🇰🇽🇰🇽🇰🇽🇰</div>
+![](https://cdn.discordapp.com/attachments/1517899250363793551/1558258967866642543/Untitled493_20261010005601.png?ex=6acac940&is=6ac977c0&hm=12abbd38b5862dff72f17b2d30e805ac1b9cdc26041bab8b76a4efb324408920&)
+<div align="center">` ᛝ      kos  ノ  rakai   .   16 yr.◟(˶> ᎑ <˶)</div>
+
+  <div align="center">᧔o᧓   .  .  neptunic    &   age/pangender ⸝⸝</div>
+  
+  
+     ପ(⑅ˊᵕˋ⑅)ଓ  taken  ♡  since 1 ノ 10 ノ 2026  ଓ 
+![](https://cdn.discordapp.com/attachments/1517899250363793551/1558259063702167622/Untitled493_20261010005816.png?ex=6acac957&is=6ac977d7&hm=f1cf22a12db668e958eb99755de85b1ed06825224ec98e52dd65406302d58fe5&) 
