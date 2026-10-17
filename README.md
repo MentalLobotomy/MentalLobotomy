@@ -1,4 +1,4 @@
-![](https://cdn.discordapp.com/attachments/1517899250363793551/1558258967866642543/Untitled493_20261010005601.png?ex=6acac940&is=6ac977c0&hm=12abbd38b5862dff72f17b2d30e805ac1b9cdc26041bab8b76a4efb324408920&)
+![](https://cdn.discordapp.com/attachments/1517899250363793551/1560984382829891715/Untitled496_20261017135144.png?ex=6ad4b37e&is=6ad361fe&hm=e52b91962f7898cf4340432e5507fdd56b64d7a96326108c61fd07083e3dbe97&)
 <div align="center">` ᛝ      kos  ノ  rakai   .   16 yr.◟(˶> ᎑ <˶)</div>
 
   <div align="center">᧔o᧓   .  .  neptunic    &   age/pangender ⸝⸝</div>
@@ -8,4 +8,4 @@
 
 <div align="center"> ‎≽₍^_ ‸ _ ^₎≼⟆</div>
 
-![](https://cdn.discordapp.com/attachments/1517899250363793551/1558259063702167622/Untitled493_20261010005816.png?ex=6acac957&is=6ac977d7&hm=f1cf22a12db668e958eb99755de85b1ed06825224ec98e52dd65406302d58fe5&) 
+![](https://cdn.discordapp.com/attachments/1517899250363793551/1560984391205785740/Untitled496_20261017135249.png?ex=6ad4b380&is=6ad36200&hm=52a24cf5f30713a0712d1270990f2771f44cf7591dff781b9e40915785b9d396&) 
