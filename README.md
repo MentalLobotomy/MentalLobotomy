@@ -1,1 +1,1 @@
-ill rmk it when i want to 
+![](https://cdn.discordapp.com/attachments/1517899250363793551/1568653591538049064/Untitled15_20261107164814.png?ex=6af09a00&is=6aef4880&hm=35439f77393be2d18d8e24ba6b4ff85ad3697f9870dbcd448bb50b41541f3eb5&) 
